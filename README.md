@@ -1,1 +1,0 @@
-# bemoeigurus-hall-of-fame
